@@ -1,0 +1,1 @@
+# Cursor-AI-Club-for-Middle-School-Students
